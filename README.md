@@ -2,7 +2,7 @@
 - 👀 I’m interested in inazuma
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on blacks
-- 📫 How to reach me : homo
+- 📫 How to reach me : monkey killt homo
 - 😄 Pronouns: kanker
 - ⚡ Fun fact: nigger
 - 
